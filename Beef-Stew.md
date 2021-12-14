@@ -23,4 +23,4 @@ When the timer goes off, pause the Chefe and add the veggies, salt, pepper, and 
 
 [optional] Use 1 tablespoon of flour and 1/4 cup of water to thicken.  Cook for an additional 30 minutes.
 
-[otpional] For additional flavor, add 1/4 teaspoon of thyme and 1/2 teaspoon of oregano.
+[optional] For additional flavor, add 1/4 teaspoon of thyme and 1/2 teaspoon of oregano.
