@@ -1,4 +1,5 @@
-# multicooker-recipes
+# Recipes for the ChefWave Chefe Multicooker
+
 This repo contains recipes that were steamed in the ChefWave Chefe Multicooker as part of a review for The Gadgeteer.
 
 * [Jasmine Rice](Jasmine-Rice.md)
