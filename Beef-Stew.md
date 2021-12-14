@@ -15,7 +15,7 @@ Cut the stew meat into cubes.  Saute on stove until brown in the oil.
 
 Add meat and water to the pot.
 
-Add the steam bar to the lid and attack to the pot.  Fill the water tank to max.
+Add the steam bar to the lid and attach to the pot.  Fill the water tank to max.
 
 Set to the stew program (80 minutes) and press start.  Set a timer for 50 minutes.
 
