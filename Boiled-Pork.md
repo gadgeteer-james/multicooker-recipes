@@ -8,6 +8,8 @@ Cut vertical slices in the pork, every 1/2 inch, slicing about 1/2 down.  Place 
 
 Place bay leaves, rosemary, and sage in the bottom of the Chefe.  Add the pork.
 
-Close the lid.  Fill the water to max.
+Attach the steam bar to the lid, and secure the lid in place. Place the pot on the Chefe.
 
-Press the slow cook button (60 minutes).
+Fill the water tank to max. Press the slow cook button (60 minutes).
+
+When finished, cut and serve.
