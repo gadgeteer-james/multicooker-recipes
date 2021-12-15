@@ -6,7 +6,7 @@
 * 1/2 teaspoon rosemary
 * 1/2 teaspoon of sage
 
-Cut vertical slices in the pork, every 1/2 inch, slicing about 1/2 down.  Place garlic in the slices.
+Cut vertical slices in the pork, every 1/2 inch, slicing about 1/2 way down.  Place garlic in the slices.
 
 Place bay leaves, rosemary, and sage in the bottom of the Chefe.  Add the pork.
 
