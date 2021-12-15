@@ -1,5 +1,7 @@
 # Boiled Pork
 
+* 1 1/2 lb pork tenderloin
+* 1 1/2 cloves of garlic, sliced
 * 1 to 2 bay leaves
 * 1/2 teaspoon rosemary
 * 1/2 teaspoon of sage
